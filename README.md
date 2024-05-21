@@ -8,7 +8,4 @@ Meu nome é Marina Camargo
 
 ### Você pode entrar em contato comigo 📫
 
-marinafranciscocamargo@gmail.com
-
-@marinaa_camargo
-
+00001089881733sp@al.educacao.sp.gov.br
